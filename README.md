@@ -59,6 +59,7 @@ y solo lo sencillo sobrevive al paso del tiempo
 
 ## Contacto
 
+- **Mi libro:** https://demo4836xt.github.io/El-Peso-de-Pensar/
 - **GitHub:** https://github.com/demo4836xt  
 - **Discord:** https://discord.gg/s8n6aEkBG3  
 - **YouTube:** https://www.youtube.com/@Demo4836xtOriginal  
