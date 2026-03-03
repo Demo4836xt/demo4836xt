@@ -1,4 +1,4 @@
-# 👋 Hola, soy demo4836xt o demo4836 o solo demo para otros
+# 👋 Hola, soy demo4836xt o demo4836 o solo demo o el demon o demito para otros
 
 Soy creador digital y desarrollador independiente.
 
