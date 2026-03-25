@@ -65,10 +65,11 @@ y solo lo sencillo sobrevive al paso del tiempo
 - **Discord:** https://discord.gg/s8n6aEkBG3  
 - **YouTube:** https://www.youtube.com/@Demo4836xtOriginal  
 - **Twitch:** https://www.twitch.tv/demo4836xt  
-- **Steam:** https://steamcommunity.com/profiles/76561199683689917  
+- **Steam:** https://steamcommunity.com/id/demo4836xt/  
 - **X:** https://x.com/Demo4836_xt  
 - **TikTok:** https://www.tiktok.com/@demo4836xt  
-- **Spotify:** https://open.spotify.com/user/31a2olgd2nhxobrqsoz63xllrqii  
+- **Spotify:** https://open.spotify.com/user/31a2olgd2nhxobrqsoz63xllrqii
+- **Facebook:** https://www.facebook.com/profile.php?id=61578046465683 
 
 ---
 
