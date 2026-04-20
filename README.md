@@ -73,5 +73,5 @@ y solo lo sencillo sobrevive al paso del tiempo
 
 ---
 
-> “Un hábito no solo define tu futuro tambien tu forma de ser.”
-
+> “Sufrimos más por nuestra imaginación que por la realidad… asique alregrate y deja de sobrepensar.”
+> “19 de Abril de 2025 . 7:00 p.m. el mejor dia de mi vida“
