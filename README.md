@@ -98,4 +98,4 @@ y solo lo sencillo sobrevive al paso del tiempo
 
 > “Sufrimos más por nuestra imaginación que por la realidad… asique alregrate y deja de sobrepensar.”
 
-> “19 de Abril de 2025 . 7:00 p.m. el mejor dia de mi vida“
+> “19 de Abril de 2026 . 7:00 p.m. el mejor dia de mi vida“
