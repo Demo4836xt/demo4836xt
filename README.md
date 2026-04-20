@@ -18,16 +18,13 @@ No lo se perooo.
 • tengo el rasgo PAS o Persona de Alta Sensibilidad en otras palabras (buscalo si no lo entiendes)
 
 • Juegos favoritos:
-
 Halo (Halo 3-ODST ❤️) | Minecraft | FNAF | SCP | Zenless Zone Zero | tengo mas juegos favoritos en Steam & Xbox
 
 • Animes favoritos:
-
 Vinland Saga | Chainsaw Man | Jujutsu Kaisen
 DARLING in the FRANXX | Uzaki-Chan Wants to Hang Out | BOCCHI THE ROCK! | Re:ZERO -Starting Life in Another World
 
 • Mas cosas:
-
 • Colores favoritos: Negro | Blanco | Rojo | Azul
 
 • Animal favorito: zorro & Manta raya
